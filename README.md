@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tifany4me
-- 👀 IT professional in the works. ...with a solid verbal and written communication skill in multiple languages
+- 👀 IT Professional in the works. ... Very realiable with a solid verbal and written communication skill in multiple languages.
 - 🌱 I’m currently learning DevOps
 - 💞️ I’m looking to collaborate on projects
 - 📫 Contact info: yayasmartc@gmail.com
